@@ -2,4 +2,4 @@
 
 ## Kratek opis
 
-Vislice so 
+Vislice so zanimiva igra
